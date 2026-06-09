@@ -1,4 +1,4 @@
-# 
+# break a brainrot egg Script secret offers the most advanced break a brainrot egg Script, with anti-ban and silent aim. Perfect for dominating any
 
 
 
